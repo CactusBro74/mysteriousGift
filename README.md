@@ -7,5 +7,5 @@ If you want to get the gift code to redeem your book on D&D Beyond, first you ne
 ### What is France's capital?
 1. [Paris](https://cactusbro74.github.io/mysteriousGift)
 2. [C](https://cactusbro74.github.io/mysteriousGift)
-3. [F](cactusbro74.githubb.io/mysteriousGift/2/)
+3. [F](cactusbro74.github.io/mysteriousGift/2/)
 4. [Bordeaux](https://cactusbro74.github.io/mysteriousGift)
